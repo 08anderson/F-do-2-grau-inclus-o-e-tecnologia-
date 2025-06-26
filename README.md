@@ -28,7 +28,7 @@ A tecnologia não substitui o professor, mas amplia suas ferramentas de atuaçã
 
 videos:
 
-https://www.youtube.com/watch?v=ZpW9Xb5iyt4&ab_channel=DicasdematSandroCuri%C3%B3
+https://www.youtube.com/watch?v=WUZ_O8BG97c&ab_channel=TVBrasilCentral
 
 
 https://www.youtube.com/watch?v=QsbQpz1H5KQ&ab_channel=Matem%C3%A1ticaeF%C3%ADsicaemLIBRAS

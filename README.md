@@ -33,4 +33,4 @@ https://www.youtube.com/watch?v=WUZ_O8BG97c&ab_channel=TVBrasilCentral
 
 https://www.youtube.com/watch?v=QsbQpz1H5KQ&ab_channel=Matem%C3%A1ticaeF%C3%ADsicaemLIBRAS
 
-
+https://www.geogebra.org/classic?lang=pt 

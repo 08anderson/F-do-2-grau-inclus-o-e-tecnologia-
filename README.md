@@ -34,3 +34,7 @@ https://www.youtube.com/watch?v=WUZ_O8BG97c&ab_channel=TVBrasilCentral
 https://www.youtube.com/watch?v=QsbQpz1H5KQ&ab_channel=Matem%C3%A1ticaeF%C3%ADsicaemLIBRAS
 
 https://www.geogebra.org/classic?lang=pt 
+
+Exercícios de apoio:
+
+https://exercicios.brasilescola.uol.com.br/exercicios-matematica/exercicios-sobre-funcao-2-o-grau.htm
